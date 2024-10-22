@@ -1,0 +1,1 @@
+Navigate to the Gradescope to access the lab. 
